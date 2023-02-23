@@ -1,1 +1,0 @@
-# davomkrtchyan.github.io
